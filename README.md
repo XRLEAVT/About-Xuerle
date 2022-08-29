@@ -12,4 +12,6 @@
 🔗 [Trakt](https://trakt.tv/users/xuerlea) / [Simkl](https://simkl.com/5597562/) / [Anilist](https://anilist.co/user/Xuerlea/) | [GG](https://ggapp.io/Xuerlea)
 | [Last.fm](https://www.last.fm/user/Xuerlea)
 
-**It takes time for me to reply but I'm doing my best! :smile:**
+Notice
+--
+- It takes time for me to reply but I'm doing my best!
