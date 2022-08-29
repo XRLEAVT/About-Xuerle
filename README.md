@@ -1,7 +1,6 @@
 
-:wave: Hello, I'm **Xuerlea**  [*(xuer/xuers)*](https://en.pronouns.page/@Xuerlea)
+:wave: Hello, I'm **Xuerlea**
 --
-*| Queer | Disabled | Black Artist |*
 
 ✨ My interests are cooking, art, reading, gaming, web design and gardening.
 
