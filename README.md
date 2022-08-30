@@ -1,16 +1,17 @@
 
-:wave: Greeting, I'm **Xuerlea**!
---
+# :wave: Greeting, I'm **Xuerlea**!
+## 🌻 ABOUT ME 🌻
+### 😀 Fun Facts
+- **Interests**: cooking, art, reading, gaming, web-design, psychology & gardening.
+- I own two wonderful cats, Carly and Negan. They're my babies. 💕🐱🐱
 
-✨ **Interests**: cooking, art, reading, gaming, web-design, psychology & gardening.
+## 🔗 LINKS
+🎨 [Itaku](https://itaku.ee/profile/xrleaart) • [Furaffinity](https://www.furaffinity.net/user/xrleaart/) •
+ [Nushara](https://nushara.com/xuerleaart/) • [AO3](https://archiveofourown.org/users/XRLEAART/pseuds/XRLEAART)
 
- 🎨 [Itaku](https://itaku.ee/profile/xrleaart) | [Furaffinity](https://www.furaffinity.net/user/xrleaart/) |
- [Nushara](https://nushara.com/xuerleaart/) | [AO3](https://archiveofourown.org/users/XRLEAART/pseuds/XRLEAART)
+📺 [Trakt](https://trakt.tv/users/xuerlea)/[Simkl](https://simkl.com/5597562/)/[Anilist](https://anilist.co/user/Xuerlea/) • 🎮 [GG](https://ggapp.io/Xuerlea)
+• 🎵 [Last.fm](https://www.last.fm/user/Xuerlea)
 
- 🔗 [Trakt](https://trakt.tv/users/xuerlea)/[Simkl](https://simkl.com/5597562/) |
-[Anilist](https://anilist.co/user/Xuerlea/) | [GG](https://ggapp.io/Xuerlea)
-| [Last.fm](https://www.last.fm/user/Xuerlea)
-
-ℹ️ **NOTICE**
---
-- It takes time for me to reply but I'm doing my best!
+## ℹ️ **NOTICE**
+- It takes time for me to prossess things, so it'll take time to reply.
+- I inconsistently uplad due to school, heath issues and/or other things.
