@@ -13,5 +13,6 @@
 • 🎵 [Last.fm](https://www.last.fm/user/Xuerlea)
 
 ## ℹ️ **NOTICE**
+- I made this account for [Ponytown](https://pony.town/) but I'll use it for my web designing.
 - It takes time for me to prossess things, so it'll take time to reply.
-- I inconsistently uplad due to school, heath issues and/or other things.
+- I inconsistently upload due to school, heath issues and/or other things.
